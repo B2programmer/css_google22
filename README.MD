@@ -1,0 +1,1 @@
+![patika eğitim ile css son odev google22 çalısması](https://i.gyazo.com/24b382a8b84d7f2ad3cdd3a7ed52ce88.png)
